@@ -1,2 +1,2 @@
-# TejaSwaroopMullamuri.github.io
+# TejaSwaroopM.github.io
 Personal Website
